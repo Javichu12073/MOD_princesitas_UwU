@@ -1,1 +1,1 @@
-# MOD_princesitas_UwU
+# MOD PRINCESITAS UwU
